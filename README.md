@@ -27,4 +27,4 @@
 
 ## 📬 Contact Me
 - 💬 [Discord](https://discord.gg/kj5m)
-- 💬 [BEHANCE](https://www.behance.net/kj5m)
+- 💬 [Behance](https://www.behance.net/kj5m)
